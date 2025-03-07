@@ -1,1 +1,0 @@
-# handoflazy.github.io
